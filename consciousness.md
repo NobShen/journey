@@ -1,4 +1,4 @@
-Does consciousness precede materials?
+#Does consciousness precede materials?
 
 According to the black hole theory, the Universe began with a Big Bang.
 - Elementary particles soon developed
