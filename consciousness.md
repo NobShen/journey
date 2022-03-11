@@ -13,3 +13,5 @@ In a nutshell, consciousness is the basic awareness that an organism has to prot
 As such, it might not be far fetch to say not only organisms but cells, molecules, atoms, neutrons, gluons, quarks, might also have consciousness.
 
 Then the next question is which comes first?  Consciousness or elementary particles?
+
+Or for that matter, even the Big Bang...
