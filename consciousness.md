@@ -1,7 +1,7 @@
 # Does consciousness precede matter?
 
 According to the black hole theory, the Universe began with a Big Bang.
-- Elementary particles soon developed
+- Matter began to develop, first with elementary particles
 - Then quarks, neutrinos, gluons, netron, atoms, molecules
 - Then cells, organisms, plants and animals including human
 - With plants and animals, consciousness developed
