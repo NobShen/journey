@@ -11,4 +11,6 @@
 - The magnetic field permeate only the earth
 - Higgs On and Higgs Off happened 10^10 second
 - The Universe now contains all the Higgs On - Higgs Field permeate the whole universe
--  
+- Neil Turok: anti matter is matter going back in time (?)
+- Actually there is no beginning of the Universe
+- World Science Festival: Symmetric Universe
